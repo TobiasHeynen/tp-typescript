@@ -4,5 +4,5 @@ Integrantes:
 Heynen Tobias
 Graciela Nancy
 Troillan Romina
-Paula Solis
+Ileana Paula F. Solis
 Cristian Sambrana
